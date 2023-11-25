@@ -1,5 +1,4 @@
-Namaskar🙏, I’m @ashirbadsahu,
-I'm a fool seeking for knowledge. Okay, let's make it.
+Namaskar🙏. 18 (btw/arch)
 
 <!---
 ashirbadsahu/ashirbadsahu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
